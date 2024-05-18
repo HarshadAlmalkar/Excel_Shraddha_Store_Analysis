@@ -45,7 +45,7 @@ Sample Insights :
    contributing (~80%)
 
 
-Final Conclusion to improve Vrinda store sales:
+Final Conclusion to improve Shraddha store sales:
 
 Target women customers of age group (30-49 yrs) 
 living in Maharashtra, Karnataka and Uttar 
